@@ -7,4 +7,4 @@
   ## <p align="center"> ok this is a test idk what the hell im doing!
 <p align="center"> <img width="206" height="142" alt="4b80nn79ri2e1" src="https://github.com/user-attachments/assets/d13b8711-b51d-47b2-8311-2178eb887eab" />
   
-<p align="center"> ## 𝕃𝕆𝕍𝔼 𝔽𝕀ℕ𝔻𝕊 𝕀𝕋𝕊 𝕎𝔸𝕐 𝕋𝕆 𝕋ℍ𝔼 𝔾𝕀ℝ𝕃
+## <p align="center"> 𝕃𝕆𝕍𝔼 𝔽𝕀ℕ𝔻𝕊 𝕀𝕋𝕊 𝕎𝔸𝕐 𝕋𝕆 𝕋ℍ𝔼 𝔾𝕀ℝ𝕃
