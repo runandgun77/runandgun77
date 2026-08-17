@@ -12,7 +12,3 @@ $${\color{#330f2a}MAGA people , \space \color{#561846}Abelist people , \space \c
 $${\color{#330f2a}Homophobic people , \space \color{#561846}Tranphobic people , \space \color{#330f2a}People who think neopronouns arent apart of LGBTQ+ , }$$
 $${\color{#561846}people who mock typing quirks , \space \color{#561846}Endogenic systems , }$$
 $${\color{#330f2a}people who think microlabels arent apart of the LGBTQ+ community , \space \color{#561846}ETC . }$$
-
-<p align="center"><img width="200" height="200" alt="SUSIEGITHUB4FRIENDDD" src="https://github.com/user-attachments/assets/c906ecd2-df0d-442e-b7e2-6249e9b6f0cc" />
-
-<p align="center"><img width="200" height="200" alt="gif-color-changed (2)" src="https://github.com/user-attachments/assets/42ad2e0a-9970-490f-a108-3001a2974232" /><img width="200" height="200" alt="gif-color-changed (1)" src="https://github.com/user-attachments/assets/556c48ab-aaf4-47d3-9a30-cea5d808d7e4" /> 
