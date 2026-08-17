@@ -1,6 +1,6 @@
 $${\color{#7e2568}LOVE \space \color{#661a53}FINDS \space \color{#561846}ITS \space \color{#3e1133}WAY \space \color{#330f2a}TO \space \color{#2b0c23}THE \space \color{#1e0818}GIRL }$$
 
-<img width="496" height="704" alt="0joaqysf3iaf1" src="https://github.com/user-attachments/assets/8661fa95-edc8-448f-8bcb-01a143a09ab8" />
+<img width="296" height="354" alt="0joaqysf3iaf1" src="https://github.com/user-attachments/assets/8661fa95-edc8-448f-8bcb-01a143a09ab8" />
 
 $${\color{#7e2568}He / \color{#661a53}Him / \color{#561846}Xeir / \color{#3e1133}Xeirs / \color{#330f2a}Themself / \color{#2b0c23}It / \space \color{#2b0c23}Its }$$
 
